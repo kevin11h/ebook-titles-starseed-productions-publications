@@ -12,4 +12,7 @@
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
 
 
-Experience
+11.  Copywriting CopyMaster's Handbook Guide book Textbook
+12. Investor's quotebook question notebook
+
+Learn + Work = Mind + Body = Virtuous Cycle Experience
