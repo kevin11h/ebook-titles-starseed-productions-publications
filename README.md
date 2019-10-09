@@ -16,3 +16,7 @@
 12. Investor's quotebook question notebook
 
 Learn + Work = Mind + Body = Virtuous Cycle Experience
+
+![](http://www.newfoundationspubl.org/starseed.htm)
+
+http://www.newfoundationspubl.org/starseed.htm
