@@ -19,6 +19,7 @@ Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 # StarSeed Productions
 ## Constellation of Words
+### Take Root, Grow Fruit
 ![](https://dailyverses.net/images/en/niv/genesis-26-4-5.jpg)
 
 http://www.newfoundationspubl.org/starseed.htm
@@ -34,3 +35,4 @@ http://www.newfoundationspubl.org/starseed.htm
 ##  E-ministry - Email Nonprofit Ministry for Christianity Nonprofit
 
 ## DD: Daily Devotional - an email ministry E-mministry Nonprofit
+
