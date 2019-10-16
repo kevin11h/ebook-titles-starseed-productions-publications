@@ -5,7 +5,7 @@
 3.  How to write startup publications self-publish information products whitepapers Learning how to write
 4.  What they don't teach you at Stanford / Berkeley business school
 5.  Millionaire ( Miracle ) Mission  
-6.  Jobs of Jesus
+6.  Jobs of Jesus - God = the Job above all Jobs
 7.  Conscious of Christ Cs of Christ
 8.  Art of Analytics / Art of War for Data Science / Tao of Analytics / Tao of Data Science
 9.
@@ -21,9 +21,14 @@ Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 http://www.newfoundationspubl.org/starseed.htm
 
-
-# IP Managers Network / Slack Channel Information Product  Nonprofit
+# Account Creation - Identity
+## IP Managers Network / Slack Channel Information Product  Nonprofit
  
-#  CopyMasters Nonprofit
+# Nonprofits Social-Capital Sourcing
+##  CopyMasters Nonprofit
 
-#  E-ministry - Email Nonprofit Ministry for Christianity
+## CC: Copywriter's Club Nonprofit
+
+##  E-ministry - Email Nonprofit Ministry for Christianity Nonprofit
+
+## DD: Daily Devotional - an email ministry E-mministry Nonprofit
