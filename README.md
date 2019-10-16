@@ -17,6 +17,8 @@
 
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
+# StarSeed Productions
+## Constellation of Words
 ![](https://dailyverses.net/images/en/niv/genesis-26-4-5.jpg)
 
 http://www.newfoundationspubl.org/starseed.htm
