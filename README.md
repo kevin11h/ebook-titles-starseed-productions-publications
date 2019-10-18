@@ -29,10 +29,13 @@ http://www.newfoundationspubl.org/starseed.htm
  
 # Nonprofits Social-Capital Sourcing
 ##  CopyMasters Nonprofit
+### Communications Consulting Services
 
-## CC: Copywriter's Club Nonprofit
+## CC: Copywriter's Club Nonprofit Membership
 
 ##  E-ministry - Email Nonprofit Ministry for Christianity Nonprofit
 
 ## DD: Daily Devotional - an email ministry E-mministry Nonprofit
 
+##  Copywrite Studio
+### Creative Works & Publication Production Writer's Studio 
