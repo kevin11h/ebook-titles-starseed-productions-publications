@@ -8,7 +8,7 @@
 6.  Jobs of Jesus - God = the Job above all Jobs
 7.  Conscious of Christ Cs of Christ
 8.  Art of Analytics / Art of War for Data Science / Tao of Analytics / Tao of Data Science
-9.
+9.  Jesus Christ's financial advice / wisdom 15% of teachings concerned money
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
 
 
