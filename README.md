@@ -15,6 +15,9 @@
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
 
+1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto
+ 3 Virtues  https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
 # StarSeed Productions
