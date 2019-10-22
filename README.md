@@ -42,6 +42,10 @@ http://www.newfoundationspubl.org/starseed.htm
 
 ## DD: Daily Devotional - an email ministry E-mministry Nonprofit
 
+## Christian Copywriter's Club
+
+## Christian Copywriters Ministry
+
 ##  Copywrite Studio
 ### Creative Works & Publication Production Writer's Studio 
 
