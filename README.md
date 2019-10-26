@@ -10,8 +10,6 @@
 8.  Art of Analytics / Art of War for Data Science / Tao of Analytics / Tao of Data Science
 9.  Jesus Christ's financial advice / wisdom 15% of teachings concerned money. Christ concerning money 11-16/38 Parables
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
-
-
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
 
@@ -19,6 +17,8 @@
 
 1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto
  3 Virtues  https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+
+2.  Andrew Yang Music CDs compilation
 
 Learn + Work = Mind + Body = Virtuous Cycle Experience
 
