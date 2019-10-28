@@ -18,9 +18,19 @@
 1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto
  3 Virtues  https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
 
+https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
+
+yang2020.com/policies
+
+Atrium Justin Kan recommendation
+
+
+
 2.  Andrew Yang Music CDs compilation
 
 Learn + Work = Mind + Body = Virtuous Cycle Experience
+
+3.  Event Distribution Chapter Release Party @EastWind books 
 
 # StarSeed Productions
 ## Constellation of Words
