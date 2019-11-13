@@ -12,6 +12,7 @@
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
+12.  Meetings with Remarkable Men(tors){ships}
 
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
