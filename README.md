@@ -1,5 +1,11 @@
 # ebook-titles-starseed-productions-publications
 
+> Worst-Selling better than Non-selling worst than Buying
+> Buying & Investing > selling
+> Investing = Giving & Growing
+
+> Scottish Secrets, Capitalism, Copywriting, 
+
 1.  Asian Wealth Guide Golden Millenium
 2.  Mindset Miracles
 3.  How to write startup publications self-publish information products whitepapers Learning how to write
