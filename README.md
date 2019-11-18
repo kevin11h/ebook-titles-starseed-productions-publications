@@ -18,7 +18,12 @@
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
-12.  Meetings with Remarkable Men(tors){ships}
+
+# New Book Titles & Ideas
+
+1.  Meetings with Remarkable Men(tors){ships}
+2.  Connect the Stars (Paul Jun Connect the Dots)
+3.  Constellation of Words (Paul Jun Epmire of Words)
 
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
