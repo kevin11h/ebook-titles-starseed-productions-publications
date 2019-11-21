@@ -6,6 +6,8 @@
 
 > Scottish Secrets, Capitalism, Copywriting, 
 
+## Publisher Partnerships - SkySeed, Revolution books, Eastwind, ReSearch pubs
+
 1.  Asian Wealth Guide Golden Millenium
 2.  Mindset Miracles
 3.  How to write startup publications self-publish information products whitepapers Learning how to write
