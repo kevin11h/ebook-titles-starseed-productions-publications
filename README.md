@@ -24,6 +24,8 @@
 1.  Meetings with Remarkable Men(tors){ships}
 2.  Connect the Stars (Paul Jun Connect the Dots)
 3.  Constellation of Words (Paul Jun Epmire of Words)
+4. 
+5.  Dan Lok Youtube MasterCopy Transcript ~ it's like Internet of Money a summary of talks on Youtube
 
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
