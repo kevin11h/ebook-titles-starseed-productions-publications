@@ -28,7 +28,8 @@
 3.  Constellation of Words (Paul Jun Epmire of Words)
 4. 
 5.  Dan Lok Youtube MasterCopy Transcript ~ it's like Internet of Money a summary of talks on Youtube
-
+6.
+7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
 1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto
