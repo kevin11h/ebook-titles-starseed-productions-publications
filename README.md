@@ -1,3 +1,9 @@
+# 1.  Starseed productions / publications?
+# 2.  Arclight Arclite Publications?  
+# 3.  Dollar Book Store?
+# 4.  DollarSeed BookStore?
+# 5.  Math = Ministry of Arts, Teaching & Healing
+
 # ebook-titles-starseed-productions-publications
 
 > Worst-Selling better than Non-selling worst than Buying
@@ -20,6 +26,10 @@
 10.  Crypterms Crypto dict Crypto Legal Economics Science Security
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
+
+# Renew Re-Christian
+1.  Christian Work Ethic: Jesus quite your job (taxes are evil?)
+a.  thessalonians
 
 # New Book Titles & Ideas
 
