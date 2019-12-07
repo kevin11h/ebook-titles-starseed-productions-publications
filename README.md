@@ -29,21 +29,24 @@
 
 # Renew Re-Christian
 1.  Christian Work Ethic: Jesus quite your job (taxes are evil?)
-a.  thessalonians
+a.  thessalonians Christian Work Ethic - Peter Exercise Energy of Christianity #Christian #energy
 
 # New Book Titles & Ideas
 
 1.  Meetings with Remarkable Men(tors){ships}
 2.  Connect the Stars (Paul Jun Connect the Dots)
 3.  Constellation of Words (Paul Jun Epmire of Words)
-4. 
+4.   What they don't Teach You at Wharton School of B
 5.  Dan Lok Youtube MasterCopy Transcript ~ it's like Internet of Money a summary of talks on Youtube
 6.
 7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
-1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto
+1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto Green Gospel
  3 Virtues  https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
+2. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto Technology Testament
+
+
 
 https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=asian-man-white-female-politics
 
