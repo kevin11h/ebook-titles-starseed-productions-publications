@@ -38,7 +38,7 @@ a.  thessalonians Christian Work Ethic - Peter Exercise Energy of Christianity #
 3.  Constellation of Words (Paul Jun Epmire of Words)
 4.   What they don't Teach You at Wharton School of B
 5.  Dan Lok Youtube MasterCopy Transcript ~ it's like Internet of Money a summary of talks on Youtube
-6.
+6.  Engineering Student's Quotebook / Diary / Journal Quotations Copybook ~ SI2 = Scientific International / Standard Issue
 7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
