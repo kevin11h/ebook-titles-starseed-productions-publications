@@ -14,6 +14,9 @@
 
 > Scottish Secrets, Capitalism, Copywriting, 
 
+# Comics
+# 1.  Batman Book of Superhero Project Managers Interviews & Podcasts
+
 ## Publisher Partnerships - SkySeed, Revolution books, Eastwind, ReSearch pubs
 
 1.  Asian Wealth Guide Golden Millenium
@@ -43,6 +46,8 @@ a.  thessalonians Christian Work Ethic - Peter Exercise Energy of Christianity #
 6.  Engineering Student's Quotebook / Diary / Journal Quotations Copybook ~ SI2 = Scientific International / Standard Issue
 7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
+
+
 
 1. Andrew Yang Booklets Pocket Guides Pocket Book Principles Manifesto Green Gospel
  3 Virtues  https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign
