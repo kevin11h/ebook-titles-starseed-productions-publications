@@ -94,3 +94,5 @@ http://www.newfoundationspubl.org/starseed.htm
 # Mentors and Mentresses
 # https://www.goodreads.com/review/list/93362833-kevin-hung?shelf=writing
 ![](https://raw.githubusercontent.com/kevin11h/Guy-Kawaski-s-10-startup-slides/master/IMAG1425.jpg)
+
+![](https://github.com/kevin11h/ebook-titles-starseed-productions-publications/blob/master/starseed-logo-2.png?raw=true)
