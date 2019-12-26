@@ -33,7 +33,8 @@
 12. Investor's quotebook question notebook
 
 # Renew Re-Christian
-1.  Christian Work Ethic: Jesus quite your job (taxes are evil?)
+## (The Holy) Bible About [on] Money: 2,000 Years of Timeless Treasury of Wisdom for you
+### 1.  Christian Work Ethic: Jesus quite your job (taxes are evil?)
 a.  thessalonians Christian Work Ethic - Peter Exercise Energy of Christianity #Christian #energy
 
 # New Book Titles & Ideas
