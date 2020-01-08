@@ -17,6 +17,12 @@
 # Comics
 # 1.  Batman Book of Superhero Project Managers Interviews & Podcasts
 
+# New Book Ideas
+# 1. Bible on Money
+# 2. Batman book of superhero PMs product project managers interviews stories
+# 3. Engineering Empathy Journal - Science Engineer Mathematicians Musicians Mystics Wisemen Sayings magi Miracles Christ Jesus quotes words and sayings. Poets, Philosophers, Prophets of Peace. Quotes quotations, quotebook, phrasebook, questions, Daily Journal Daily miralce, 77 days to success +++++++ You're a Hero Save a Life Ministry Foundation for Stopping Suicide Intervention Donation
+
+
 ## Publisher Partnerships - SkySeed, Revolution books, Eastwind, ReSearch pubs
 
 1.  Asian Wealth Guide Golden Millenium
@@ -44,8 +50,8 @@ a.  thessalonians Christian Work Ethic - Peter Exercise Energy of Christianity #
 3.  Constellation of Words (Paul Jun Epmire of Words)
 4.   What they don't Teach You at Wharton School of B
 5.  Dan Lok Youtube MasterCopy Transcript ~ it's like Internet of Money a summary of talks on Youtube
-6.  Engineering Student's Quotebook / Diary / Journal Quotations Copybook ~ SI2 = Scientific International / Standard Issue
-7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
+# 6.  Engineering Student's Quotebook / Diary / Journal Quotations Copybook ~ SI2 = Scientific International / Standard Issue
+# 7.  Christian Entrepreneurs Interview Play Book Question  & Answer Catechisms
 # https://en.wikipedia.org/wiki/Andrew_Yang_2020_presidential_campaign#Policies
 
 
