@@ -4,6 +4,19 @@
 # 4.  DollarSeed BookStore?
 # 5.  Math = Ministry of Arts, Teaching & Healing
 
+# $20 Ebooks
+1 AMWF Abundance Attraction Dating Guide Field Manual
+a AMWF Christianity church game spirituality connections
+b Social Media Game
+c Text Telegram Game
+d language & communications game
+e insider interviews with AMWF dating coaches
+f literature references game
+g career game
+h course game / education game
+i diet nutrition mineras vitamins
+j style guide clothes brands 
+
 ## 1. Spiritual Pilgrim
 
 # ebook-titles-starseed-productions-publications
