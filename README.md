@@ -2,7 +2,8 @@
 # 2.  Arclight Arclite Publications?  
 # 3.  Dollar Book Store?
 # 4.  DollarSeed BookStore?
-# 5.  Math = Ministry of Arts, Teaching & Healing
+# 5.  Math = Ministry of Arts, Teaching & Healing MATH MINISTRY OF ARTS TEACHING & HEALING
+
 
 # $20 Ebooks
 1 AMWF Abundance Attraction Dating Guide Field Manual
