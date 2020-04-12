@@ -4,7 +4,12 @@
 # 4.  DollarSeed BookStore?
 # 5.  Math = Ministry of Arts, Teaching & Healing MATH MINISTRY OF ARTS TEACHING & HEALING
 
-Saint Stephen, True History , Tartaria Visions of Eurasian Empire Tartaria Visions from Tartaria
+# New Book Ideas 2020
+1. Saint Stephen, True History , Tartaria Visions of Eurasian Empire Tartaria Visions from Tartaria
+2. Litecoin Beginner's Investing Trading Mining Guide Book
+3. C Programming
+
+
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
 # Fruit Trees & and Star Seeds Christian Poetry Book
