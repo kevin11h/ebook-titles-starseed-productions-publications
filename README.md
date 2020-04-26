@@ -12,7 +12,7 @@
 1. Saint Stephen, True History , Tartaria Visions of Eurasian Empire Tartaria Visions from Tartaria
 2. Litecoin Beginner's Investing Trading Mining Guide Book
 3. C Programming
-
+## Rich God Poor God Jesus rich dad poor dad redemption sequel
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
