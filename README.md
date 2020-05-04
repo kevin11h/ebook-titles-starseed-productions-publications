@@ -1,6 +1,6 @@
-# Symphony of Tartaria
+# Symphony of Tartaria CD
 
-# Tartarian Symphony
+# Tartarian Symphony MP3
 
 # 1.  Starseed productions / publications?
 # 2.  Arclight Arclite Publications?  
@@ -12,7 +12,9 @@
 1. Saint Stephen, True History , Tartaria Visions of Eurasian Empire Tartaria Visions from Tartaria
 2. Litecoin Beginner's Investing Trading Mining Guide Book
 3. C Programming
-## Rich God Poor God Jesus rich dad poor dad redemption sequel
+## 4. Rich God Poor God Jesus rich dad poor dad redemption sequel
+## 5. Mind Travel Connect the Stars (Paul Jun Connect the Dots) 100B - 9-Star Travel : Day Dream Spiritual Vacation Interstellar Galactic Tour $9
+
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
@@ -48,6 +50,7 @@ j style guide clothes brands
 
 # Comics
 # 1.  Batman Book of Superhero Project Managers Interviews & Podcasts
+# 2. Entrepreneur Comis Draper
 
 # New Book Ideas
 # 1. Bible on Money
