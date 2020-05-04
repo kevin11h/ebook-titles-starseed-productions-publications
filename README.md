@@ -13,8 +13,8 @@
 2. Litecoin Beginner's Investing Trading Mining Guide Book
 3. C Programming
 ## 4. Rich God Poor God Jesus rich dad poor dad redemption sequel
-## 5. Mind Travel Connect the Stars (Paul Jun Connect the Dots) 100B - 9-Star Travel : Day Dream Spiritual Vacation Interstellar Galactic Tour $9
-
+## 5. Mind Travel Connect the Stars (Paul Jun Connect the Dots) 100B - 9-Star (space) Travel : Single 1-Day Dream  Interstellar Spiritual Tour for Just Only $9 Budget #Escapist Eschatology
+# 6. China Prophecy Bible Revelations (banned book revelations)
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
