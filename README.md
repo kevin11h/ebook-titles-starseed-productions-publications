@@ -14,7 +14,8 @@
 3. C Programming
 ## 4. Rich God Poor God Jesus rich dad poor dad redemption sequel
 ## 5. Mind Travel Connect the Stars (Paul Jun Connect the Dots) 100B - 9-Star (space) Travel : Single 1-Day Dream  Interstellar Spiritual Tour for Just Only $9 Budget #Escapist Eschatology
-# 6. China Future Prophecy   China in Christian Bible Book of Revelation (banned book revelations) 100 million Chinese Christians Angels Revelation
+# 6. China Future Prophecy   China in Christian Bible Book of Revelation (banned book revelations) 100 million Chinese Christians Angels Revelation + One PIece Manga Comics
+# 7.Money Math Mentorship: 10 Equations of Eternity to Help You Succeed in Finance to Guide Mentor & Make the Right Choices in Life $10
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
