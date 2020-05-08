@@ -3,7 +3,7 @@
 # Tartarian Symphony MP3
 
 # 1.  Starseed productions / publications?
-# 2.  Arclight Arclite Publications?  
+# 2.  Arclight Arclite Publications?
 # 3.  Dollar Book Store?
 # 4.  DollarSeed BookStore?
 # 5.  Math = Ministry of Arts, Teaching & Healing MATH MINISTRY OF ARTS TEACHING & HEALING
@@ -16,6 +16,7 @@
 ## 5. Mind Travel Connect the Stars (Paul Jun Connect the Dots) 100B - 9-Star (space) Travel : Single 1-Day Dream  Interstellar Spiritual Tour for Just Only $9 Budget #Escapist Eschatology
 # 6. China Future Prophecy   China in Christian Bible Book of Revelation (banned book revelations) 100 million Chinese Christians Angels Revelation + One PIece Manga Comics
 # 7.Money Math Mentorship: 10 Equations of Eternity to Help You Succeed in Finance to Guide Mentor & Make the Right Choices in Life $10
+# 8. Engineering Equity: Treasury of Financial Terminology for Students in Technology 
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
