@@ -17,6 +17,8 @@
 # 6. China Future Prophecy   China in Christian Bible Book of Revelation (banned book revelations) 100 million Chinese Christians Angels Revelation + One PIece Manga Comics
 # 7.Money Math Mentorship: 10 Equations of Eternity to Help You Succeed in Finance to Guide Mentor & Make the Right Choices in Life $10
 # 8. Engineering Equity: Treasury of Financial Terminology for Students in Technology 
+# 9. Bitcoin Parables
+# 10. crypterms ABC crypto dictionary
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
