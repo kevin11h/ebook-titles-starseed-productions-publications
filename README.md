@@ -19,6 +19,7 @@
 # 8. Engineering Equity: Treasury of Financial Terminology for Students in Technology 
 # 9. Bitcoin Parables
 # 10. crypterms ABC crypto dictionary
+https://www.goodreads.com/book/show/10005604-ancient-greek-women-philosophers?from_search=true&from_srp=true&qid=hRIePDgizD&rank=7
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
