@@ -17,8 +17,9 @@
 # 6. China Future Prophecy   China in Christian Bible Book of Revelation (banned book revelations) 100 million Chinese Christians Angels Revelation + One PIece Manga Comics
 # 7.Money Math Mentorship: 10 Equations of Eternity to Help You Succeed in Finance to Guide Mentor & Make the Right Choices in Life $10
 # 8. Engineering Equity: Treasury of Financial Terminology for Students in Technology 
-# 9. Bitcoin Parables
-# 10. crypterms ABC crypto dictionary
+# 9. THink and Grow Rich Exponentially: Mathematical Guide to Growing Successfully in Life
+# 10. Bitcoin Parables
+# 11. crypterms ABC crypto dictionary
 https://www.goodreads.com/book/show/10005604-ancient-greek-women-philosophers?from_search=true&from_srp=true&qid=hRIePDgizD&rank=7
 
 # $20 AMWF eBooks Dating
