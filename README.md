@@ -21,6 +21,7 @@
 # 10. Bitcoin Parables
 # 11. crypterms ABC crypto dictionary
 https://www.goodreads.com/book/show/10005604-ancient-greek-women-philosophers?from_search=true&from_srp=true&qid=hRIePDgizD&rank=7
+# 12. Copy Content Leverage Andrew Ng Machine Learning Book Copy Hard Cover e-book + Hand-Book
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
