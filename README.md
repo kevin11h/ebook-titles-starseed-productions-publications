@@ -1,4 +1,6 @@
-#https://towardsdatascience.com/simple-text-generation-d1c93f43f340
+# AI enabled text prompts https://towardsdatascience.com/simple-text-generation-d1c93f43f340
+# Golden Ascent Archive Reading https://archive.vn/kz4cA
+
 # Symphony of Tartaria CD
 # Tartarian Symphony MP3
 
