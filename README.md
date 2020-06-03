@@ -70,7 +70,7 @@ j style guide clothes brands
 ## Publisher Partnerships - SkySeed, Revolution books, Eastwind, ReSearch pubs
 
 1.  Asian Wealth Guide Golden Millenium
-2.  Mindset Miracles
+2.  Mindset Miracles https://www.youtube.com/watch?v=sUpY8n1K9Lg Billy Graham Mindset Motivational Winning Spiritual War
 3.  How to write startup publications self-publish information products whitepapers Learning how to write
 4.  What they don't teach you at Stanford / Berkeley business school
 5.  Millionaire ( Miracle ) Mission  
@@ -152,3 +152,5 @@ http://www.newfoundationspubl.org/starseed.htm
 ![](https://raw.githubusercontent.com/kevin11h/Guy-Kawaski-s-10-startup-slides/master/IMAG1425.jpg)
 
 ![](https://github.com/kevin11h/ebook-titles-starseed-productions-publications/blob/master/starseed-logo-2.png?raw=true)
+
+# https://www.youtube.com/watch?v=sUpY8n1K9Lg
