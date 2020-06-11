@@ -20,11 +20,11 @@
 # 7.Money Math Mentorship: 10 Equations of Eternity to Help You Succeed in Finance to Guide Mentor & Make the Right Choices in Life $10
 # 8. Engineering Equity: Treasury of Financial Terminology for Students in Technology 
 # 9. THink and Grow Rich Exponentially: Mathematical Guide to Growing Successfully in Life f = e^x
-# 10. Bitcoin Parables
+# 10. Bitcoin Bible-based Parables
 # 11. crypterms ABC crypto dictionary
 https://www.goodreads.com/book/show/10005604-ancient-greek-women-philosophers?from_search=true&from_srp=true&qid=hRIePDgizD&rank=7
 # 12. Copy Content Leverage Andrew Ng Machine Learning Book Copy Hard Cover e-book + Hand-Book
-# 15. Ten-Slide Commandments - Investor's quotebook question notebook 7 Thiel Tests 4 Chris Yeh Criterion 4 Buddha Answers Tim Chang's Title-name Thesis Team Technology Timing Traction Tactics (how to monopolize the market)
+# 15. Ten-Slide Commandments - Investor's quotebook question notebook 7 Thiel Tests 4 Chris Yeh Criterion 4 Buddha Answers 4 Sun Tzu 4 Strategy Who has moral cause? 4x Army experienced well trained troops? 7 Tim Chang's Title-name Thesis Team Technology Timing Traction-Trajectory (first five year financial forecast) - Tactics (how to monopolize the market) 
 
 # $20 AMWF eBooks Dating
 ##$20 AMWF Music Store USBs CDs DJ Fuji Recommendatins Mixes
