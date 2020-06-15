@@ -84,7 +84,8 @@ j style guide clothes brands
 12. Investor's quotebook question notebook
 
 1. Startup Dictionary: Entrepreneur's & Budding Technologist Technological Terminology Guide to Personal Own Term Sheet
-2.Yang Gang Endorsed Math Work Book 
+2.Yang Gang Endorsed Math Work Book Math = Ministry of Arts, Teaching & Healing MATH MINISTRY OF ARTS TEACHING & HEALING
+Additionally Add UniQlo Yang2020 Brand Product Line shirts clothes custom hats
 
 # Renew Re-Christian
 ## (The Holy) Bible About [on] Money: 2,000 Years of Timeless Treasury of Wisdom for you
