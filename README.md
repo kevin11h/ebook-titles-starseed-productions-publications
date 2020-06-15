@@ -83,6 +83,9 @@ j style guide clothes brands
 11.  Copywriting CopyMaster's Handbook Guide book Textbook
 12. Investor's quotebook question notebook
 
+1. Startup Dictionary: Entrepreneur's & Budding Technologist Technological Terminology Guide to Personal Own Term Sheet
+2.Yang Gang Endorsed Math Work Book 
+
 # Renew Re-Christian
 ## (The Holy) Bible About [on] Money: 2,000 Years of Timeless Treasury of Wisdom for you
 ### 1.  Christian Work Ethic: Jesus quite your job (taxes are evil?)
