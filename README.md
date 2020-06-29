@@ -159,3 +159,17 @@ http://www.newfoundationspubl.org/starseed.htm
 ![](https://github.com/kevin11h/ebook-titles-starseed-productions-publications/blob/master/starseed-logo-2.png?raw=true)
 
 # https://www.youtube.com/watch?v=sUpY8n1K9Lg
+
+# KWML King Warrior Magician Lover Quaternity Careers Consulting & Coaching = IDEA Investor Developer/Programmer/Coder Entrepreneur Author/Writer
+1. Parable Unemployed Laborers in the Vineyard
+2. Second Home Heaven second chance life work worship wisdom Solomon Ask Wisdom Prayer Psalm 27:4 Inquire Temple
+3. Cashflow Quadrant
+4. Jungian Psychology Quaternity
+5. Archetype theory
+6. Ancient Jobs Roles Titles Shepherd - Prophet - Apostle Evolution
+7. Spiritual Leader Farmer/Provider/Tool Maker City Builder-Hunter Temple-Builder Nimrod Cain VS. Shepherd Spiritual Leader Abel Prophet Apostle
+8. Language Tool Task name game name all animals and plants and trees 
+9. Role of women helper Holy Spirit typology Genesis 2:18 Madonna Complex
+10. Mind Body Spirit - God conscious omniscience Jesus body bride church of Christ & Holy Spirit
+11. Shepherd Fisherman Evolution
+
