@@ -173,3 +173,5 @@ http://www.newfoundationspubl.org/starseed.htm
 10. Mind Body Spirit - God conscious omniscience Jesus body bride church of Christ & Holy Spirit
 11. Shepherd Fisherman Evolution
 
+# 3-Free-Sermons-from-JP-Joseph-Prince-App-Apply-Apple-Eye
+## https://www.youtube.com/watch?v=GVacFURoeeQ
