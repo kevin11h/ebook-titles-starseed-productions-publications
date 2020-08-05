@@ -14,7 +14,7 @@ https://en.wikipedia.org/wiki/Acts_27#:~:text=After%20fourteen%20days%20without%
 # 3.  Dollar Book Store?
 # 4.  DollarSeed BookStore?
 # 5.  Math = Ministry of Arts, Teaching & Healing MATH MINISTRY OF ARTS TEACHING & HEALING
-
+![](https://miro.medium.com/max/1096/1*0Vh4-pqamH12TX3K8lxgaw.png)
 # New Book Ideas 2020
 1. Saint Stephen, True History , Tartaria Visions of Eurasian Empire Tartaria Visions from Tartaria
 2. Litecoin Beginner's Investing Trading Mining Guide Book
