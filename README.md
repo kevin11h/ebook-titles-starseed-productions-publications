@@ -27,6 +27,7 @@ https://en.wikipedia.org/wiki/Acts_27#:~:text=After%20fourteen%20days%20without%
 # 9. THink and Grow Rich Exponentially: Mathematical Guide to Growing Successfully in Life f = e^x
 # 10. Bitcoin Bible-based Parables
 # 11. crypterms ABC crypto dictionary
+# 11.5. MONEY DICTIONARY TERMS - cash, check, balance, payments, sign, gold, value, stock, proceeds, credit, offer, donation donate, TICKET
 https://www.goodreads.com/book/show/10005604-ancient-greek-women-philosophers?from_search=true&from_srp=true&qid=hRIePDgizD&rank=7
 # 12. Copy Content Leverage Andrew Ng Machine Learning Book Copy Hard Cover e-book + Hand-Book
 # 15. Ten-Slide Commandments - Investor's quotebook question notebook 7 Thiel Tests 4 Chris Yeh Criterion 4 Buddha Answers 4 Sun Tzu 4 Strategy Who has moral cause? 4x Army experienced well trained troops? 7 Tim Chang's Tenets Title-name Thesis Team Target Demographic Technology Timing TimeLine Traction-Trajectory (first five year financial forecast) - Tactics (how to monopolize the market) 
