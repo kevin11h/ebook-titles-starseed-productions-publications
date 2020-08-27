@@ -1,6 +1,9 @@
 # Where is your Podcast Show of Faith? Faith with works works!
 > After fourteen days without eating, St Paul "took bread and gave thanks to God in the presence of all, and he broke it and began to eat" and 276 Christian believers had eaten their fill.
 
+## August 2020
+### https://github.com/kevin11h/Engineering-Creativity-Morning-Motivation-Daily-Inspiration-Workbook-Quotebook
+
 https://en.wikipedia.org/wiki/Acts_27#:~:text=After%20fourteen%20days%20without%20eating,believers%20had%20eaten%20their%20fill.
 
 # AI enabled text prompts https://towardsdatascience.com/simple-text-generation-d1c93f43f340
