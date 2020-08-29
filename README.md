@@ -4,7 +4,8 @@
 ## August 2020
 ### https://github.com/kevin11h/Engineering-Creativity-Morning-Motivation-Daily-Inspiration-Workbook-Quotebook
 ### Home Crypto Solar Powered Miner Car Engines Private HOme Hanger + Private Airstrip Airway https://github.com/kevin11h/Home-Hangar-Private-Airstrip-Escape-Agricultural-Grape-Vineyard-Farmer-Plane-Firefighter-MedicalRe
-### WeFly / WeFlight Uber for planes & pilots
+### Pilot Chapter of "Home Crypto" Projects WeFly / WeFlight Uber for planes & pilots Solar Powered Miner & Solar Power Car Miner
+https://github.com/kevin11h/Bible-Cut-Create-Connect-Trim-Workshop-Turn-1-DollarTree-Bibles-Into-Booklet-Series/blob/master/README.md
 
 https://en.wikipedia.org/wiki/Acts_27#:~:text=After%20fourteen%20days%20without%20eating,believers%20had%20eaten%20their%20fill.
 
