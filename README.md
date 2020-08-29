@@ -186,3 +186,5 @@ http://www.newfoundationspubl.org/starseed.htm
 
 # 3-Free-Sermons-from-JP-Joseph-Prince-App-Apply-Apple-Eye
 ## https://www.youtube.com/watch?v=GVacFURoeeQ
+
+# 1. https://github.com/kevin11h/Bible-Cut-Create-Connect-Trim-Workshop-Turn-1-DollarTree-Bibles-Into-Booklet-Series/blob/master/README.md
