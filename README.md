@@ -1,6 +1,9 @@
 # Where is your Podcast Show of Faith? Faith with works works! Works Pray Effective James 5:16
 > After fourteen days without eating, St Paul "took bread and gave thanks to God in the presence of all, and he broke it and began to eat" and 276 Christian believers had eaten their fill.
 Inspired by https://stellarhousepublishing.com/about/
+
+## November 2020
+# 1. BLOCKCHAIN BUSINESS MODELS PODCAST INTERVIEWS BOOKS SERIES
 ## August 2020
 ### https://github.com/kevin11h/Engineering-Creativity-Morning-Motivation-Daily-Inspiration-Workbook-Quotebook
 ### Home Crypto Solar Powered Miner Car Engines Private HOme Hanger + Private Airstrip Airway https://github.com/kevin11h/Home-Hangar-Private-Airstrip-Escape-Agricultural-Grape-Vineyard-Farmer-Plane-Firefighter-MedicalRe
